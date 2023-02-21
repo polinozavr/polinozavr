@@ -1,2 +1,2 @@
-### Hi there 👋
+### Hi I am Polina 🧚
 
